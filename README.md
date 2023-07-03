@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Web Development<br>👯 I’m looking to collaborate on Projects<br>🤝 I’m looking for help with Drone Technology<br>🌱 I’m currently learning AI & Machine Learning<br>💬 Ask me about Anything<br>⚡ Fun fact It's easy to calculate a tip without a calculator. ...
+🔭 I’m currently working on Drones<br>👯 I’m looking to collaborate on Projects and Paid Internships<br>🤝 I’m looking for help with Drone Technology<br>🌱 I’m currently learning AI & Machine Learning<br>💬 Ask me about Anything<br>⚡ Fun fact It's easy to calculate a tip without a calculator. ...
 
 
 ## 🌐 Socials:
